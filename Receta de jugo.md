@@ -10,3 +10,5 @@
 4. Se le agrega a la jarra el jugo de naranja en el vaso
 
 5. Se añade hielo y azucar (opcional)
+
+6. Disfrutar!
